@@ -1,6 +1,6 @@
 ## 小黄油游戏网站-绅士游戏RPG/ACT/SLG/ADV黄油资源站
 
-网站资源库在线下载地址: https://www.ntrku.com
+网站资源库在线下载地址: https://www.ntrku.com 
 网站资源库在线下载地址: https://www.ntrku.com
 网站资源库在线下载地址: https://www.ntrku.com
 专业小黄油殿堂：精准邂逅你的极致乐趣
